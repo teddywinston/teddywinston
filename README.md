@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @teddywinston
+- 👋 Hi, I’m Maurice Maximillius. CEO and Founder Of Teddy Winston Brand.
 - 👀 I’m interested in building comoanies and scaling.
 - 🌱 I’m currently learning how coding.
 - 💞️ I’m looking to collaborate on how to scale my companies
