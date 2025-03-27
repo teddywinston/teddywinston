@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @teddywinston
-- 👀 I’m interested in building comoanies and scaling.
-- 🌱 I’m currently learning how coding.
+- 👋 Hi, I’m Maurice Maximillius. CEO and Founder Of Teddy Winston Brand.
+- 👀 I’m interested in building AI driven companies.
+- 🌱 I’m currently learning coding.
 - 💞️ I’m looking to collaborate on how to scale my companies
 - 📫 How to reach me info@teddywinston.com
 - 😄 Pronouns: He-Him
